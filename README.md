@@ -3,4 +3,4 @@ undetected kernel cs2 cheat (not open source tbh u can use it idk)
 
 name changed to expectional btw
 
-LAST UPDATE: 16.11.2023 22:35 (TURKEY)
+LAST UPDATE: 18.11.2023 17:50 (TURKEY)
